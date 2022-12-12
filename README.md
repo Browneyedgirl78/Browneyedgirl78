@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Blanca Gonzales 
+- 👀 I’m seeking a career
+- 🌱 I’m currently learning new skills daily
+- 💞️ I’m looking provide security for my family
+- 📫 I may be reached that bv.gonzales@hotmail.com
